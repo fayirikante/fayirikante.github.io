@@ -1,0 +1,2 @@
+# fayirikante.github.io
+ mypage
